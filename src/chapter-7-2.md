@@ -1,5 +1,3 @@
-Developing Strategies to Overcome Procrastination and Distractions
-==================================================================================================================
 
 Procrastination and distractions can be major obstacles to effective time management. In this chapter, we will explore strategies for overcoming these challenges and optimizing your time.
 

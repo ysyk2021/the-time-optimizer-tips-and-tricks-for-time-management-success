@@ -1,5 +1,3 @@
-Chapter 3: Setting Goals and Priorities
-=======================================
 
 Effective time management requires setting clear goals and priorities. In this chapter, we will discuss techniques for defining your personal and professional goals, breaking them down into smaller, manageable steps, and prioritizing your tasks and activities.
 

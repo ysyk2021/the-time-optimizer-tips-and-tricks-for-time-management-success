@@ -1,5 +1,3 @@
-Tracking Your Metrics and KPIs
-====================================================================================================
 
 Tracking your metrics and key performance indicators (KPIs) is essential for evaluating and improving your time management performance. In this chapter, we will explore methods for tracking your metrics and KPIs to optimize your time.
 

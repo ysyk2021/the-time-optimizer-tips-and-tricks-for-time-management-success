@@ -1,5 +1,3 @@
-Prioritizing Your Tasks and Activities
-===============================================================================
 
 Setting goals and priorities is essential for success as a time optimizer. In this chapter, we'll explore strategies for setting goals and priorities and prioritizing your tasks and activities.
 

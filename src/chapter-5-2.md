@@ -1,5 +1,3 @@
-Focusing Your Attention and Avoiding Multitasking
-============================================================================================
 
 Managing your energy and focus is essential for effective time management. In this chapter, we will explore strategies for focusing your attention and avoiding multitasking to optimize your time.
 

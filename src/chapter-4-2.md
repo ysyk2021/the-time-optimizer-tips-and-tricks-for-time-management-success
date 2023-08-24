@@ -1,5 +1,3 @@
-Identifying Time-Wasters and Distractions
-===============================================================================================
 
 Boosting your productivity and efficiency is essential for success as a time optimizer. In this chapter, we'll explore strategies for identifying time-wasters and distractions that can hinder productivity.
 

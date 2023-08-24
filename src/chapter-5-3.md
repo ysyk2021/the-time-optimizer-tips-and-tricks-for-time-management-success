@@ -1,5 +1,3 @@
-Incorporating Mindfulness and Relaxation Techniques
-==============================================================================================
 
 Effective time management not only involves managing our tasks and schedules but also managing our energy and focus. In this chapter, we will explore the importance of mindfulness and relaxation techniques in managing our energy and improving focus.
 

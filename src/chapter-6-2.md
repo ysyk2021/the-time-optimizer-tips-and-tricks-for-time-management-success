@@ -1,5 +1,3 @@
-Creating a Balanced and Healthy Lifestyle
-==========================================================================================
 
 A balanced and healthy lifestyle is essential for optimizing our time and energy. In this chapter, we will explore how to create a balanced and healthy lifestyle by prioritizing self-care, maintaining a healthy diet, getting enough sleep, and managing stress.
 

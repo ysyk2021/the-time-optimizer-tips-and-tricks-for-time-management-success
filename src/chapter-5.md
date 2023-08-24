@@ -1,5 +1,3 @@
-Chapter 5: Managing Your Energy and Focus
-=========================================
 
 Managing your energy and focus is essential for success as a time optimizer. In this chapter, we'll explore strategies for maximizing your mental and physical energy, focusing your attention and avoiding multitasking, and incorporating mindfulness and relaxation techniques.
 

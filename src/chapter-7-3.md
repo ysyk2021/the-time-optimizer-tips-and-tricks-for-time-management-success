@@ -1,5 +1,3 @@
-Building Resilience and Adapting to Change
-==========================================================================================
 
 Overcoming obstacles and challenges is essential for success as a time optimizer. In this chapter, we'll explore strategies for building resilience and adapting to change.
 

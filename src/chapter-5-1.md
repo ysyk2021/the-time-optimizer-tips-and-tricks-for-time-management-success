@@ -1,5 +1,3 @@
-Maximizing Your Mental and Physical Energy
-=====================================================================================
 
 Managing your mental and physical energy is essential for effective time management. In this chapter, we will explore strategies for maximizing your energy to optimize your time.
 

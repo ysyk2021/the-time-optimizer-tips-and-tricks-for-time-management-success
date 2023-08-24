@@ -1,5 +1,3 @@
-Exploring the Research behind Time Management
-======================================================================================================
 
 To optimize your time and improve your time management skills, it's important to understand the science behind time management. In this chapter, we will explore the research behind time management and how it can help you manage your time more effectively.
 

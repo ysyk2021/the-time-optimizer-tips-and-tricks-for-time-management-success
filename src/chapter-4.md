@@ -1,5 +1,3 @@
-Chapter 4: Boosting Your Productivity and Efficiency
-====================================================
 
 Boosting your productivity and efficiency is essential for success as a time optimizer. In this chapter, we'll explore strategies for setting realistic timelines and deadlines, identifying time-wasters and distractions, and using productivity tools and techniques to stay on track.
 

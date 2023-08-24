@@ -1,5 +1,3 @@
-Chapter 6: Building Healthy Habits and Routines
-===============================================
 
 Effective time management involves not only managing our tasks and schedules but also building healthy habits and routines to optimize our energy and focus. In this chapter, we will explore how to develop a daily routine, create a balanced and healthy lifestyle, and build resilience and coping skills.
 

@@ -1,5 +1,3 @@
-Defining Your Personal and Professional Goals
-======================================================================================
 
 Defining personal and professional goals is essential for success as a time optimizer. In this chapter, we'll explore strategies for setting personal and professional goals and prioritizing them.
 

@@ -1,5 +1,3 @@
-Assessing Your Current Time Management Habits and Routines
-===================================================================================================================
 
 To improve your time management skills, it's essential to understand the science behind time management. In this chapter, we will discuss techniques for assessing your current time management habits and routines.
 

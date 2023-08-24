@@ -1,5 +1,3 @@
-Building Resilience and Coping Skills
-======================================================================================
 
 Building healthy habits and routines is essential for effective time management. In this chapter, we will explore strategies for building resilience and coping skills to optimize your time.
 
