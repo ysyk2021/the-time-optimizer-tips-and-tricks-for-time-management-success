@@ -8,3 +8,7 @@ Whether you are a busy professional, a student, or simply looking to improve you
 So, let's get started on the journey to becoming a time optimizer!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

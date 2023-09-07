@@ -34,3 +34,4 @@
   - [Continuously Improving and Growing as a Time Optimizer](chapter-8-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
