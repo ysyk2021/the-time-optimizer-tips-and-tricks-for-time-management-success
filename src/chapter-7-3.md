@@ -1,5 +1,4 @@
-Chapter: Building Resilience and Adapting to Change
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of building resilience and developing the ability to adapt to change in order to optimize your time management. By understanding the benefits of resilience and adopting strategies for embracing change, you can navigate challenges more effectively and maintain productivity in a dynamic environment.
 

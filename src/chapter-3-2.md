@@ -1,5 +1,4 @@
-Chapter: Breaking Down Your Goals into Smaller, Manageable Steps
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of breaking down your goals into smaller, manageable steps to optimize your time management. By understanding the benefits of breaking down goals and implementing effective strategies, you can make progress towards your objectives more efficiently and achieve greater success.
 

@@ -1,5 +1,4 @@
-Chapter: Identifying Time-Wasters and Distractions
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the crucial task of identifying time-wasters and distractions that hinder effective time management. Time-wasters and distractions can significantly impact productivity, derail progress, and lead to inefficiency. By recognizing and addressing these obstacles, individuals can reclaim their time, enhance focus, and optimize their time management strategies.
 

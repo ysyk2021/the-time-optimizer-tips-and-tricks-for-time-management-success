@@ -1,5 +1,4 @@
-Chapter: Developing a Daily Routine and Rituals
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of developing a daily routine and rituals for effective time management. Establishing a structured routine and incorporating meaningful rituals into your day can help optimize productivity, enhance focus, reduce decision fatigue, and create a sense of stability and balance in your life.
 

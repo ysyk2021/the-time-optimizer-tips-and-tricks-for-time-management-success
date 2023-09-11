@@ -1,5 +1,4 @@
-Chapter: Prioritizing Your Tasks and Activities
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the essential skill of prioritizing tasks and activities to optimize your time management. By understanding the importance of setting priorities and implementing effective prioritization strategies, you can ensure that you focus on what matters most and achieve greater productivity and success.
 

@@ -1,5 +1,4 @@
-Chapter: Maximizing Your Mental and Physical Energy
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for maximizing your mental and physical energy to optimize your time management. By understanding the importance of energy management and implementing techniques to enhance your overall well-being, you can boost productivity, focus, and achieve success in managing your time effectively.
 

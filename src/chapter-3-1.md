@@ -1,5 +1,4 @@
-Chapter: Defining Your Personal and Professional Goals
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of defining your personal and professional goals for effective time management. By understanding the significance of goal-setting and implementing strategies to clarify and prioritize your goals, you can align your actions with your desired outcomes and achieve greater success in managing your time.
 

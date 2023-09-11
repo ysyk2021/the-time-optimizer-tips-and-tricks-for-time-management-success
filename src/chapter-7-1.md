@@ -1,5 +1,4 @@
-Chapter: Identifying Common Barriers and Challenges to Effective Time Management
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the common barriers and challenges that individuals often face when trying to manage their time effectively. By understanding these obstacles, you can develop strategies to overcome them and improve your overall time management skills.
 

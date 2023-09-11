@@ -1,5 +1,4 @@
-Chapter: Continuously Improving and Growing as a Time Optimizer
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of continuously improving and growing as a time optimizer. By adopting a mindset of continuous learning and implementing effective strategies for personal growth, you can enhance your time management skills, increase productivity, and achieve greater success in managing your time.
 

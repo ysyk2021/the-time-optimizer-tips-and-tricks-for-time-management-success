@@ -1,5 +1,4 @@
-Chapter: Focusing Your Attention and Avoiding Multitasking
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of focusing your attention and avoiding multitasking in order to optimize your time management. By understanding the drawbacks of multitasking and learning strategies for enhancing focus, you can significantly improve your productivity and efficiency.
 

@@ -1,5 +1,4 @@
-Chapter: Assessing Your Current Time Management Habits and Routines
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss the importance of assessing your current time management habits and routines as a crucial step towards improving your time management skills. By carefully evaluating how you currently manage your time, you can identify areas of strength, weaknesses, and opportunities for growth. This self-assessment will serve as a foundation for implementing effective strategies and making meaningful changes to optimize your time.
 
